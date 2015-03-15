@@ -1,0 +1,1 @@
+all the notes taken in lsi class
